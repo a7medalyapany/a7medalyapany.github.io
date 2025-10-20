@@ -1,0 +1,1 @@
+# a7medalyapany.github.io
